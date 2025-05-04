@@ -6,7 +6,10 @@
 ---
 
 
-Uploading binbuddy１.mp4…
+
+https://github.com/user-attachments/assets/c23a5c7e-ccaa-4294-8038-1c2d59aacdcc
+
+
 
 
 ## 目次
