@@ -5,6 +5,10 @@
 
 ---
 
+
+Uploading binbuddy１.mp4…
+
+
 ## 目次
 
 - [背景](#背景)
