@@ -66,9 +66,7 @@ https://github.com/user-attachments/assets/c23a5c7e-ccaa-4294-8038-1c2d59aacdcc
 
 ---
 
----
 
 **binbuddy japan** を通じて、在日外国人の生活をより快適にする一助になれば幸いです。  
-３名のチームで開発しました。
 
 
